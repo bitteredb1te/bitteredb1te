@@ -62,7 +62,7 @@ $${\color{#4c2967}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
 <p align="center">
   <a href= "https://azresash.atabook.org"> ata </a> ×
   <a href= "https://bittersweeted.straw.page"> strwpg </a> ×
-  <a href= "https://en.pronouns.page/@Fallingsouls"> prnspge </a> × 
+  <a href= "https://en.pronouns.page/@Fallingsouls"> prnspge </a> ! 
   <br>
 
   <p align="center">
