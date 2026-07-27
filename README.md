@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-$${\color{#e5bae8}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
+$${\color{#e5bae8}𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃 ༻ ꒰ ☁︎ ꒱ ༺ 𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃}$$
 ㅤ</br>
 </p>
   <p align="center">
@@ -37,25 +37,27 @@ $${\color{#e5bae8}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
 ㅤ</br>
 </p>
 
+ </p>
 <p align="center">
-$${\color{#111111}᭝ ᨳ₊˚ଓ ՟}$$
+  $${\color{#e7c3e6}Dry}$$ $${\color{#e7c3e6}Or}$$ $${\color{#e7c3e6}Energetic}$$ $${\color{#e7c3e6}On}$$ 
+  $${\color{#e7c3e6}First}$$ $${\color{#e7c3e6}Meet}$$ ㅤ 
+ㅤ</br>
 </p>
 
  </p>
 <p align="center">
-  $${\color{#111111}Song}$$ $${\color{#111111}Lyric}$$ $${\color{#111111}Credits}$$ $${\color{#111111}To}$$ ㅤ 
-  $${\color{#111111}2hollis}$$ $${\color{#111111}With}$$ $${\color{#111111}Crush}$$</br>  
+  $${\color{#e7c3e6}Sensitive}$$ $${\color{#e7c3e6}--}$$ $${\color{#e7c3e6}Iwcare}$$ㅤ 
 ㅤ</br>
 </p>
 
 <p align="center">
-$${\color{#e5bae8}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
+$${\color{#e5bae8}𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃 ༻ ꒰ ☁︎ ꒱ ༺ 𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃}$$
 ㅤ</br>
 </p>
 
 <p align="center">
-  $${\color{#111111}L}$$ $${\color{#111111}i}$$ $${\color{#111111}n}$$ $${\color{#111111}k}$$
-  $${\color{#111111}s}$$ ㅤ</br>  
+  $${\color{#e7c3e6}L}$$ $${\color{#e7c3e6}i}$$ $${\color{#e7c3e6}n}$$ $${\color{#e7c3e6}k}$$
+  $${\color{#e7c3e6}s}$$ ㅤ</br>  
 ㅤ</br>
 </p>
 <p align="center">
