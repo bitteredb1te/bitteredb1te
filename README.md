@@ -21,42 +21,42 @@ $${\color{#dcc1de}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
 
  </p>
 <p align="center">
-$${\color{#3d1a57}I'm}$$ $${\color{#4c2967}So}$$ $${\color{#58376f}Embarrassed}$$ ㅤ $${\color{#644778}But}$$
-  $${\color{#847092}I}$$ $${\color{#745c85}Gotta}$$ $${\color{#4c2967}Tell}$$ $${\color{#58376f}The}$$ $${\color{#3d1a57}Truth}$$
+$${\color{#111111}I'm}$$ $${\color{#111111}So}$$ $${\color{#111111}Embarrassed}$$ ㅤ $${\color{#111111}But}$$
+  $${\color{#111111}I}$$ $${\color{#111111}Gotta}$$ $${\color{#111111}Tell}$$ $${\color{#111111}The}$$ $${\color{#111111}Truth}$$
 ㅤ</br>
 </p>
 
 <p align="center">
-$${\color{#3d1a57} ༘}$$ $${\color{#4c2967}₊}$$ $${\color{#58376f}✩}$$ $${\color{#644778}‧}$$ ㅤ $${\color{#847092}‧}$$ $${\color{#745c85}༯}$$ $${\color{#58376f}｡}$$ $${\color{#644778}˖}$$ ㅤ $${\color{#3d1a57}✩}$$ $${\color{#4c2967}‧}$$ $${\color{#58376f}‧}$$ $${\color{#644778}₊}$$ $${\color{#745c85} ༘}$$ ㅤ
+$${\color{#111111} ༘}$$ $${\color{#111111}₊}$$ $${\color{#111111}✩}$$ $${\color{#111111}‧}$$ ㅤ $${\color{#111111}‧}$$ $${\color{#111111}༯}$$ $${\color{#111111}｡}$$ $${\color{#111111}˖}$$ ㅤ $${\color{#111111}✩}$$ $${\color{#111111}‧}$$ $${\color{#111111}‧}$$ $${\color{#111111}₊}$$ $${\color{#111111} ༘}$$ ㅤ
 </p>
 
  </p>
 <p align="center">
-  $${\color{#3d1a57}I}$$ $${\color{#4c2967}Got,}$$ $${\color{#58376f}A}$$ $${\color{#644778}Crush}$$
-  $${\color{#745c85}On}$$ $${\color{#3d1a57}You,}$$ ㅤ $${\color{#4c2967}Do}$$ $${\color{#58376f}You◝}$$ ㅤ</br>
-ㅤ $${\color{#3d1a57}◟Crush}$$ $${\color{#4c2967}On}$$ $${\color{#58376f}Me}$$ $${\color{#3d1a57}Too?}$$ 
+  $${\color{#111111}I}$$ $${\color{#111111}Got,}$$ $${\color{#111111}A}$$ $${\color{#111111}Crush}$$
+  $${\color{#111111}On}$$ $${\color{#111111}You,}$$ ㅤ $${\color{#111111}Do}$$ $${\color{#111111}You◝}$$ ㅤ</br>
+ㅤ $${\color{#111111}◟Crush}$$ $${\color{#111111}On}$$ $${\color{#111111}Me}$$ $${\color{#111111}Too?}$$ 
 ㅤ</br>
 </p>
 
 <p align="center">
-$${\color{#58376f}᭝ ᨳ₊˚ଓ ՟}$$
+$${\color{#111111}᭝ ᨳ₊˚ଓ ՟}$$
 </p>
 
  </p>
 <p align="center">
-  $${\color{#3d1a57}Song}$$ $${\color{#4c2967}Lyric}$$ $${\color{#58376f}Credits}$$ $${\color{#644778}To}$$ ㅤ 
-  $${\color{#745c85}2hollis}$$ $${\color{#3d1a57}With}$$ $${\color{#4c2967}Crush}$$</br>  
+  $${\color{#111111}Song}$$ $${\color{#111111}Lyric}$$ $${\color{#111111}Credits}$$ $${\color{#111111}To}$$ ㅤ 
+  $${\color{#111111}2hollis}$$ $${\color{#111111}With}$$ $${\color{#111111}Crush}$$</br>  
 ㅤ</br>
 </p>
 
 <p align="center">
-$${\color{#4c2967}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
+$${\color{#111111}----------˗ˏˋ ꒰ ꩜ ꒱ ˎˊ----------˗‎}$$
 ㅤ</br>
 </p>
 
 <p align="center">
-  $${\color{#3d1a57}L}$$ $${\color{#4c2967}i}$$ $${\color{#58376f}n}$$ $${\color{#644778}k}$$
-  $${\color{#745c85}s}$$ ㅤ</br>  
+  $${\color{#111111}L}$$ $${\color{#111111}i}$$ $${\color{#111111}n}$$ $${\color{#111111}k}$$
+  $${\color{#111111}s}$$ ㅤ</br>  
 ㅤ</br>
 </p>
 <p align="center">
