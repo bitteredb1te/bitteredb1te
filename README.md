@@ -69,3 +69,5 @@ $${\color{#e5bae8}𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃 ༻ ꒰ ☁︎ ꒱ �
   <p align="center">
   <img width="800" height="50" src="https://64.media.tumblr.com/8977f85e4b09810163f8af7c71386ca0/ae82d4cb0cedcfdd-f5/s1280x1920/1f6ebcc8c12f03f8c6ad5a2ec60c29db03d9436d.pnj">
 </p>
+
+  <video src="https://github.com/user-attachments/assets/7a5e7077-5fd0-4b82-8d03-6713a586dfcc" width="80%" controls></video>
